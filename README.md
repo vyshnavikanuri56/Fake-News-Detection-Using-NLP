@@ -185,8 +185,8 @@ This script will:
 
 ## 📬 Contact
 
-**Sai Sruthi Karnatakapu**
-📧 [k.saisruthi913@gmail.com](mailto:k.saisruthi913@gmail.com)
-🔗 [LinkedIn](https://www.linkedin.com/in/saisruthi-karnatakapu/)
+**Vyshnavi Kanuri**
+📧 [kanuri.vyshnavi123@gmail.com](mailto:kanuri.vyshnavi123@gmail.com)
+🔗 [LinkedIn]((https://www.linkedin.com/in/vyshnavi-kanuri-073300265))
 
 ---
